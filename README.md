@@ -1,2 +1,2 @@
 # Mathematical-proofs
-My love of mathematics all around.
+My love of mathematics all around
