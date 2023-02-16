@@ -1,2 +1,2 @@
 # Mathematical-proofs
-My love of mathematics all around.
+Idk just some math.
